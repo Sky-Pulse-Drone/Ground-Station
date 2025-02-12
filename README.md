@@ -7,4 +7,4 @@ The Sky Pulse Drone is an advanced aerial device designed for versatility and hi
 
 With the ability to fly at impressive altitudes and navigate challenging terrains, the Sky Pulse Drone excels in capturing stunning aerial footage and detailed imagery. It's perfect for photography enthusiasts, filmmakers, and land surveyors. Additionally, the drone often comes with features such as obstacle avoidance, real-time data transmission, and extended battery life, ensuring reliable functionality in diverse environments.
 
-Whether for leisure or critical tasks, the Sky Pulse Drone represents a powerful tool that enhances creativity and efficiency in aerial exploration.
+Whether for leisure or critical tasks, the Sky Pulse Drone represents a powerful tool that enhances creativity and efficiency in aerial exploration?
